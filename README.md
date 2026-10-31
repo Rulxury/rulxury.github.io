@@ -1,2 +1,2 @@
-# rulxury.github.io
+# yafi.github.io
 Adhiwiryafitra Rulino Portofolio
